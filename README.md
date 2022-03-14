@@ -1,4 +1,4 @@
-Hi there. I'm **Scolder**. I make stuff.
+I don't chuckle.
 
 Some generic statistic stuff:
 
